@@ -1,1 +1,4 @@
 # TextCraft
+I8HUYB
+JNIK
+JUIJKO
